@@ -1,1 +1,1 @@
-Chloe Ouyang
+UChicago Student Resource Guide
